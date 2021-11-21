@@ -8,7 +8,8 @@
 
 
 --> it have something to asking please email me
-- email and all platform : inderashah007@gmail.com
+- email and all platform : 19johnkey93@gmail.com
+
 
 ### exclusion of any liability
 ### I’m currently working on...HOME'
